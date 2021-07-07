@@ -1,1 +1,0 @@
-# sample-AR-trial-2otvfkh
